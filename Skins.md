@@ -4,3 +4,5 @@
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1020800986543050852/screenshot459.png)
 # [MonkoEdit](https://www.mediafire.com/file/yg7763v186glmnp/monko.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1022339863321772053/screenshot466.png)
+# [DinoDani DT](https://www.mediafire.com/file/lmsae4r5qtpi4eh/DinoDani_DT.osk/file)
+![](https://cdn.discordapp.com/attachments/707468869727682593/1022759514115686421/screenshot479.png)
