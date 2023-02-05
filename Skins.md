@@ -7,8 +7,8 @@ random skins idk
 # [Kobeni DT](https://www.mediafire.com/file/tc99dzvkodjdjuv/DinoRafis.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1071606338687348797/screenshot041.jpg)
 
-# [DinoDani DT](https://www.mediafire.com/file/lmsae4r5qtpi4eh/DinoDani_DT.osk/file)
-![](https://cdn.discordapp.com/attachments/707468869727682593/1022759514115686421/screenshot479.png)
+# [Classic](https://www.mediafire.com/file/g1d80aublr3ure3/sdfl%25C3%25B1amf%25C3%25B1am%25C3%25B1lfamfadadada.osk/file)
+![](https://cdn.discordapp.com/attachments/707468869727682593/1071598485545156688/screenshot035.jpg)
 
 # [Bochi Skin Edit](https://www.mediafire.com/file/6i661yahgubm25i/bochi.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1066920862164451379/screenshot032.jpg)
@@ -21,3 +21,6 @@ random skins idk
 
 # [mashiro rare edit](https://www.mediafire.com/file/0flmgo61yim9npv/-_%25E3%2580%258EProject_MASHIRO%25E3%2580%258F__%255BML%255D.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1066917721251520532/screenshot019.jpg)
+
+# [DinoDani DT](https://www.mediafire.com/file/lmsae4r5qtpi4eh/DinoDani_DT.osk/file)
+![](https://cdn.discordapp.com/attachments/707468869727682593/1022759514115686421/screenshot479.png)
