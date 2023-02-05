@@ -1,5 +1,7 @@
 # DinoDani Skins :)
 random skins idk
+# [tekkitoshigetora](https://cdn.discordapp.com/attachments/960955883284729906/1057277617553813554/tekkitoshigetora.osk)
+# [tekkito](https://cdn.discordapp.com/attachments/960955883284729906/1057278342887387136/tekkito.osk)
 
 # [DinoDani v4](https://www.mediafire.com/file/8tml194oq7c0sh7/DinoDani_v4.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1020800986543050852/screenshot459.png)
