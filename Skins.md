@@ -10,7 +10,7 @@ random skins idk
 # [Mashiro Edit EZ](https://www.mediafire.com/file/0flmgo61yim9npv/-_%25E3%2580%258EProject_MASHIRO%25E3%2580%258F__%255BML%255D.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1066917721251520532/screenshot019.jpg)
 
-# [Bochi Skin Edit](https://www.mediafire.com/file/xbfm5s7r0v13zc8/bochi.osk/file)
+# [Bochi Skin Edit](https://www.mediafire.com/file/rym150esmuci7un/bochi.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1066920862164451379/screenshot032.jpg)
 
 # [Wolfy WWW](https://www.mediafire.com/file/380vw9h02w382o2/-_%25E2%2598%25BE_-Wolfy-_%25E2%2598%25BD_%25E3%2580%258EWWW%25E3%2580%258F.osk/file)
