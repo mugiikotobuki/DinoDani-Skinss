@@ -16,5 +16,5 @@ random skins idk
 # [Classic](https://www.mediafire.com/file/g1d80aublr3ure3/sdfl%25C3%25B1amf%25C3%25B1am%25C3%25B1lfamfadadada.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1071598485545156688/screenshot035.jpg)
 
-# [Mashiro Edit EZ](https://www.mediafire.com/file/0flmgo61yim9npv/-_%25E3%2580%258EProject_MASHIRO%25E3%2580%258F__%255BML%255D.osk/file)
+# [mashiro rare edit](https://www.mediafire.com/file/0flmgo61yim9npv/-_%25E3%2580%258EProject_MASHIRO%25E3%2580%258F__%255BML%255D.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1066917721251520532/screenshot019.jpg)
