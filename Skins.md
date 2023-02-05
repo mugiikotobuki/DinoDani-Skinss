@@ -15,3 +15,6 @@ random skins idk
 
 # [Wolfy WWW](https://www.mediafire.com/file/380vw9h02w382o2/-_%25E2%2598%25BE_-Wolfy-_%25E2%2598%25BD_%25E3%2580%258EWWW%25E3%2580%258F.osk/file)
 ![](https://cdn.discordapp.com/attachments/707468869727682593/1066920137158045726/screenshot028.jpg)
+
+# [Classic](https://www.mediafire.com/file/g1d80aublr3ure3/sdfl%25C3%25B1amf%25C3%25B1am%25C3%25B1lfamfadadada.osk/file)
+![](https://cdn.discordapp.com/attachments/707468869727682593/1071598485545156688/screenshot035.jpg)
